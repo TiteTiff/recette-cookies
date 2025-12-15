@@ -1,2 +1,2 @@
 # recette-cookies
-Une recette très gourmande :p
+Une recette très gourmande et chocolatée :p
